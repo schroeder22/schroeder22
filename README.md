@@ -12,4 +12,4 @@ Meu nome é Bruna Schroeder
   
   -@brunaschroeder22
 
- ![](https://media.tenor.com/4IckGuTqWeYAAAAM/spongebob-squarepants-begging.gif)
+ ![](https://media.tenor.com/4IckGuTqWeYAAAAM/spongebob-squarepants-begging.gif)            ![](https://media1.tenor.com/m/jKyovkvQpCAAAAAC/jair-se-acostumando2022.gif)
